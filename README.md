@@ -1,1 +1,1 @@
-![alt text]([http://url/to/img.png](https://thumbs.dreamstime.com/b/italian-chef-cartoon-illustration-character-65541017.jpg)https://thumbs.dreamstime.com/b/italian-chef-cartoon-illustration-character-65541017.jpg)
+![alt text](https://ibb.co/B2jX8L6)
