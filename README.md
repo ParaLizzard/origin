@@ -1,1 +1,1 @@
-![alt text](https://ibb.co/B2jX8L6)
+![alt text](https://i.ibb.co/whC9DyQ/italian-chef-cartoon-illustration-character-65541017.webp)
